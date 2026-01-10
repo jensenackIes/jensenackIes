@@ -16,7 +16,7 @@
    
 <p align="left" dir="auto">
 </p><p align="center" dir="auto">
- <a href="https://deanholic.atabook.org/" rel="nofollow">atabook</a>⠀⠀<a href="https://pronouns.cc/@deanholic" rel="nofollow">prns cc</a><br>
+ <a href="https://destielism.atabook.org/" rel="nofollow">atabook</a>⠀⠀<a href="https://pronouns.cc/@destielism" rel="nofollow">prns cc</a><br>
   
    <br>
 </p><p align="left" dir="auto">
