@@ -3,9 +3,9 @@
 <img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=stalkers&color=000000">
 </p> 
 <p align="center" dir="auto"> 
-  <sub><b>Goodbye, my friend,</b> <br/>
-  <b>It's hard to die.</b></sub>‎
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/tT04L76G/tumblr-093386c3090e7eb72943631cde9a40ee-8ea15ff2-540-removebg-preview.png" style="max-width: 100%;"></a>
+  <sub><b>I'm bold, I'm eager,</b> <br/>
+  <b>She's lovin' my demeanor</b></sub>‎
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/rFd5y4Gc/ab0ec0bff7b5fd7c16d154a1ca052afe.gif" style="max-width: 100%;"></a>
 </p>
   <p align="center" dir="auto">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3144t4e3cclfn2vqfpxbzp5hkqga&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=787878&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" style="max-width: 100%;"></a>
