@@ -5,7 +5,7 @@
 <p align="center" dir="auto"> 
   <sub><b>I'm bold, I'm eager,</b> <br/>
   <b>She's lovin' my demeanor</b></sub>‎
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/rFd5y4Gc/ab0ec0bff7b5fd7c16d154a1ca052afe.gif" style="max-width: 100%;"></a>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/ZRbGVR50/61e41d2155351b556a286c7b65d9b019.jpg" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto">
 <a href="https://rentry.co/rydean" rel="nofollow">me & sammys rentry! 💚</a>
