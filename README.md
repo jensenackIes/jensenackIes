@@ -7,9 +7,12 @@
   <b>She's lovin' my demeanor</b></sub>‎
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/rFd5y4Gc/ab0ec0bff7b5fd7c16d154a1ca052afe.gif" style="max-width: 100%;"></a>
 </p>
+    <p align="center" dir="auto">
+  <sub><a href="https://rentry.co/rydean" rel="nofollow">shared rentry!</a></sub>
   <p align="center" dir="auto">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3144t4e3cclfn2vqfpxbzp5hkqga&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=787878&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" style="max-width: 100%;"></a>
 <p align="center" dir="auto"> 
+
 <div align="center" dir="auto">
   <details close="">
 <summary></summary>
