@@ -8,7 +8,7 @@
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/ZRbGVR50/61e41d2155351b556a286c7b65d9b019.jpg" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto">
-<a href="https://rentry.co/rydean" rel="nofollow">me & sammys rentry! 💚</a>
+<a href="https://rentry.co/rydean" rel="nofollow">me & sammys rentry! ♡</a>
   <p align="center" dir="auto">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3144t4e3cclfn2vqfpxbzp5hkqga&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=787878&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" style="max-width: 100%;"></a>
 <p align="center" dir="auto"> 
