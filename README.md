@@ -3,9 +3,9 @@
 <img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=stalkers&color=000000">
 </p> 
 <p align="center" dir="auto"> 
-  <sub><b>I'm bold, I'm eager,</b> <br/>
-  <b>She's lovin' my demeanor</b></sub>‎
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/ZRbGVR50/61e41d2155351b556a286c7b65d9b019.jpg" style="max-width: 100%;"></a>
+  <sub><b>And our eyes locked in outcast love, I sit here proud, <br/>
+    Even now, you're undressed in your dreams with me. </b> </sub>‎
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.pinimg.com/originals/dc/09/d9/dc09d9802b2e8c55a82732ac82c4b342.gif" style="max-width: 100%;"></a>
 </p>
 <p align="center" dir="auto">
 <a href="https://rentry.co/rydean" rel="nofollow">me & sammys rentry! ♡</a>
