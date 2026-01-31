@@ -1,13 +1,14 @@
 
 <p align="center" dir="auto"> 
-<img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=stalkers&color=000000">
+<img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=♱&color=000000">
 </p> 
 <p align="center" dir="auto"> 
-  <sub><b>yo what kinda fish is dat 😳</b></sub>‎
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/J7vhnkgf/f7afbbdc891972b018d38ae7751fc2ff.jpg" style="max-width: 100%;"></a>
+  <sub><b>I'm Toki⠀⠀. ⠀⠀I slips in and out of diabetic coma⠀.⠀ 😳</b></sub>‎
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/257D0CPY/9f18635377ecde1dfda2f4176e43077f-removebg-preview.png" style="max-width: 100%;"></a> <br/>
+    <sub>art by barbequebarf on tumblr</sub> <br/>
 </p>
 <p align="center" dir="auto">
-<a href="https://rentry.co/rydean" rel="nofollow">me & sammys rentry! ♡</a>
+<a href="https://guns.lol/destielism" rel="nofollow">(๑ᵔ⤙ᵔ๑)</a>
   <p align="center" dir="auto">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3144t4e3cclfn2vqfpxbzp5hkqga&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=787878&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" style="max-width: 100%;"></a>
 <p align="center" dir="auto"> 
@@ -23,10 +24,7 @@
    <br>
 </p><p align="left" dir="auto">
 <ins><b><em>dni</em></b></ins> if you ship wincest/deanjohn or just ship incest & pedophilic shit in general, an exfriend or under 13 / over 19. i block freely  
-  
-   <br>
-</p><p align="left" dir="auto">
-<ins><b><em>byf</em></b></ins>    im 14 dont baby me Ok. i have audhd + did, this obviously may affect the way i act. do NOOTT expect all of my alters to act the same as me, because they really dont. its not my problem if an alter does not like you either so dont come whining to me abt it Ok?? i dont use tonetags and i'd rather them not be used for me either. i can be shy at first but once im comfortable, i can talk a lot. 
+
  
    <br>
 </p><p align="center" dir="auto">
