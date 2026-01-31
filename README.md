@@ -21,7 +21,7 @@
 </p><p align="center" dir="auto">
  <a href="https://destielism.atabook.org/" rel="nofollow">atabook</a>⠀⠀<a href="https://en.pronouns.page/@destielism" rel="nofollow">prns pg</a><br>
 <br>
-Hi i love my bffies @gutlust @driftingcowboys @suicideroom @everyone 😘🥰🥰😘😘😘🥰🥰🥰🥰
+Hi i love my bffies @gutlust @driftingcowboys @suicideroom @ 😘🥰🥰😘😘😘🥰🥰🥰🥰
 
 <br>
   
