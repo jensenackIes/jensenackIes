@@ -20,6 +20,10 @@
 <p align="left" dir="auto">
 </p><p align="center" dir="auto">
  <a href="https://destielism.atabook.org/" rel="nofollow">atabook</a>⠀⠀<a href="https://en.pronouns.page/@destielism" rel="nofollow">prns pg</a><br>
+<br>
+hi i love my friends @gutlust @driftingcowboys @suicideroom @everyone 🥰💗💚💗💚💗💚💗
+
+<br>
   
    <br>
 </p><p align="left" dir="auto">
