@@ -30,7 +30,7 @@
  
    <br>
 </p><p align="center" dir="auto">
-<ins><b><em>int</em></b></ins>  <b>supernatural</b>, <b>resident evil 6</b>, <b>dan vs</b>, sally face, jackass, stranger things, kevin spencer, star wars, perks of being a wallflower, saw, the walking dead, the boys, homestuck, peacemaker, hannibal, death note, dexter,  breaking bad, marvel, donnie darko, brokeback mountain !!!!!!
+<ins><b><em>int</em></b></ins>  <b>supernatural</b>, <b>metalocalypse</b>, <b>dead by daylight</b>, resident evil 6, dan vs, sally face, jackass, stranger things, kevin spencer, star wars, perks of being a wallflower, saw, the walking dead, the boys, homestuck, peacemaker, hannibal, death note, dexter,  breaking bad, marvel, donnie darko, brokeback mountain !!!!!!
   
  <br/>
   <br/>
