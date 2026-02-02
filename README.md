@@ -18,5 +18,5 @@
 <br>
 
    <p align="center" dir="auto"> 
-Hi i love my bffies @gutlust @driftingcowboys @suicideroom @ 😘🥰🥰😘😘😘🥰🥰🥰🥰<br/>
-<sub>nev and astrid are fat fucking chuds</sub>
+Hi i love my bffies @gutlust @driftingcowboys @suicideroom 😘🥰🥰😘😘😘🥰🥰🥰🥰<br/>
+<sub>nev and astrid are fat fucking chuds. Ryan innocent doe. 😇</sub>
