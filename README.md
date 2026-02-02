@@ -14,30 +14,9 @@
   <p align="center" dir="auto"> 
 <img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=♱&color=000000">
 </p> 
-  
-<div align="center" dir="auto">
-  <details close="">
-<summary></summary>
-   
-<p align="left" dir="auto">
-</p><p align="center" dir="auto">
- <a href="https://destielism.atabook.org/" rel="nofollow">atabook</a>⠀⠀<a href="https://en.pronouns.page/@destielism" rel="nofollow">prns pg</a><br>
+
 <br>
+
+   <p align="center" dir="auto"> 
 Hi i love my bffies @gutlust @driftingcowboys @suicideroom @ 😘🥰🥰😘😘😘🥰🥰🥰🥰<br/>
 <sub>nev and astrid are fat</sub>
-
-<br>
-  
-   <br>
-</p><p align="left" dir="auto">
-<ins><b><em>dni</em></b></ins> if you ship wincest/deanjohn or just ship incest & pedophilic shit in general, an exfriend or under 13 / over 19. i block freely  
-
-  
- <br/>
-  <br/>
-  </p><p align="left" dir="auto"> 
-    <img src="https://64.media.tumblr.com/98625030e1f2e64e6ebfd77acd12d787/dce364d49cf94a5a-26/s100x200/f86ff48d0ae25be8cdd3134b0f82e548fbe6520a.pnj"> <img src="https://64.media.tumblr.com/6892925dc13525b2212c25d47a81e9ec/dce364d49cf94a5a-84/s100x200/244e34ebd6d408ef36cdd7c3ced5ba813d744ccc.pnj">
-</p>
-  <p dir="auto"></p>
-</details>
-</div>
