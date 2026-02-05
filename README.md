@@ -6,7 +6,7 @@
 <img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=♱&color=000000">
 </p> 
 ‎
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/VN1NKSrL/G4HWQro-Xg-AAn-Ou-J-removebg-preview.png" style="max-width: 100%;"></a> <br/>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/tCZyC1ZJ/9cfa9ffa375397bbedeff3795977dd8a.jpg" style="max-width: 100%;"></a> <br/>
     <sub>links on gunslol below </sub> <br/>
 </p>
 <p align="center" dir="auto">
