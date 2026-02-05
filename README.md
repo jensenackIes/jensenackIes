@@ -19,4 +19,4 @@
 
    <p align="center" dir="auto"> 
 Hi i love my bffies @gutlust @driftingcowboys @suicideroom 😘🥰🥰😘😘😘🥰🥰🥰🥰<br/>
-<sub>nev and astrid are fat fucking chuds. Ryan innocent doe. 😇</sub>
+<sub>nev and astrid are FAT chuds. Ryan innocent doe. 😇</sub>
