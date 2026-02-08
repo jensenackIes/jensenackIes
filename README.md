@@ -6,10 +6,9 @@
 <img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=♱&color=000000">
 </p> 
 ‎
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/Z5Lf8KN0/e6af35c8b65a7d7075edc50a9aca6016.jpg" style="max-width: 100%;"></a> <br/>
-   me and @suicideroom <br/>
-  <br/>
-  <sub>links on gunslol below ㅤ.ㅤsys</sub> <br/>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/nz9YPHXv/83e16cf4836559243ec6c30d92356468.jpg" style="max-width: 100%;"></a> <br/>
+   <br/>
+
 </p>
 <p align="center" dir="auto">
 <a href="https://guns.lol/destielism" rel="nofollow">(๑ᵔ⤙ᵔ๑)</a>
