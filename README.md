@@ -7,7 +7,7 @@
 </p> 
 ‎
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/prq296zd/177041570442367360.png" style="max-width: 100%;"></a> <br/>
-    <sub>links on gunslol below </sub> <br/>
+    <sub>links on gunslol below ㅤ.ㅤsys</sub> <br/>
 </p>
 <p align="center" dir="auto">
 <a href="https://guns.lol/destielism" rel="nofollow">(๑ᵔ⤙ᵔ๑)</a>
