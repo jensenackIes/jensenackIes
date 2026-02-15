@@ -6,7 +6,7 @@
 <img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=Ი𐑼&color=ddcfbe">
 </p> 
 ‎
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/k4xvRfwx/quote-1471998930035282043.png" style="max-width: 100%;"></a> <br/>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/G3fmsd8S/Untitled159-20260215125309.png" style="max-width: 100%;"></a> <br/>
    <br/>
 
 </p>
