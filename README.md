@@ -8,6 +8,7 @@
 ‎
 <p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/G3fmsd8S/Untitled159-20260215125309.png" style="max-width: 100%;"></a> <br/>
    <br/>
+   <sub>check my socials NOW b4 i find u.</sub>
 
 </p>
 <p align="center" dir="auto">
