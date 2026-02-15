@@ -3,10 +3,10 @@
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3144t4e3cclfn2vqfpxbzp5hkqga&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=787878&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" style="max-width: 100%;"></a>
 <p align="center" dir="auto"> 
     <p align="center" dir="auto"> 
-<img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=♱&color=000000">
+<img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=Ი𐑼&color=ddcfbe">
 </p> 
 ‎
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/nz9YPHXv/83e16cf4836559243ec6c30d92356468.jpg" style="max-width: 100%;"></a> <br/>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/kgm9x4Jr/Untitled159-20260215124240.png" style="max-width: 100%;"></a> <br/>
    <br/>
 
 </p>
