@@ -20,4 +20,4 @@
 <br>
 
    <p align="center" dir="auto"> 
-@aarseniccatnip = twig 😂
+@aarseniccatnip Us jarpad bois... 𝕎𝕖 𝕊𝕥𝕚𝕔𝕜 𝕋𝕠𝕘𝕖𝕥𝕙𝕖𝕣
