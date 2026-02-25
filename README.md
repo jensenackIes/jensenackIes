@@ -6,7 +6,7 @@
 <img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=Ი𐑼&color=ddcfbe">
 </p> 
 ‎
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/G3fmsd8S/Untitled159-20260215125309.png" style="max-width: 100%;"></a> <br/>
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/SKmPB5wH/271e8a6b559dbd0c0653c7e7c9ca9251.gif" style="max-width: 100%;"></a> <br/>
    <br/>
    <sub>check my socials NOW b4 i find u.</sub>
 
