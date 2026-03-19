@@ -1,16 +1,13 @@
 
  <p align="center" dir="auto">
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3144t4e3cclfn2vqfpxbzp5hkqga&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=8f8f8f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)" style="max-width: 100%;"></a> 
-<p align="center" dir="auto"> 
-<sub>saving people, hunting things, the family business .</sub> ‎
-<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/9QG39Xy0/416620326d6736ec30c8359ccf139e72.gif" style="max-width: 100%;"></a> <br/>
+‎
+<p align="center" dir="auto"><a target="_blank" rel="noopener noreferrer nofollow" href=><img src="https://i.postimg.cc/25qkspBx/ezgif-7149dd3e460246cb.gif" style="max-width: 100%;"></a> <br/>
 
-  <p align="center" dir="auto"> 
-<img src="https://komarev.com/ghpvc/?username=deanholic&style=plastic&label=Ი𐑼&color=000000">
-</p> 
 
 </p>
-<p align="center" dir="auto">
-<a href="https://guns.lol/destielism" rel="nofollow">gunslol</a>
+<div align="center" dir="auto">
+<div class="markdown-heading" dir="auto"><h4 class="heading-element" dir="auto"><a href="https://guns.lol/destielism" rel="nofollow"><strong>gunslol</strong></a>⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀<a href="https://destielism.atabook.org/" rel="nofollow"><strong>新book</strong></a></h4><a id="user-content-rentry新book" class="anchor" aria-label="Permalink: RENTRY⠀⠀⠀⠀⠀新BOOK" href="#rentry新book"><svg 
+</div>
 
 <p align="center" dir="auto"> 
